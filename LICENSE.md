@@ -1,4 +1,4 @@
-
+Elevate your anime vanguards experience with sec anime vanguards Executor | god + esp, the executor that does it all! From god to esp, we provide the tools you need to succeed. Our commitment to quality and innovation ensures you're always one step ahead.
 
 
 ---
